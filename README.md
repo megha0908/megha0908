@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **megha22@navgurukul.org**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Aqjzm9RPgs2mkyxXosZyGdESsYwSdTU8/view?usp=sharing](https://drive.google.com/file/d/1Aqjzm9RPgs2mkyxXosZyGdESsYwSdTU8/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/16WiC3F5cN_ZwZFzJGVDMfINWthqerm3P/view?usp=sharing
 
 - ⚡ Fun fact **I am naughty**
 
