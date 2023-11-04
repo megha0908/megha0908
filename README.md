@@ -9,11 +9,11 @@
 
 - 💬 Ask me about **Python and c**
 
-- 📫 How to reach me **megha22@navgurukul.org**
+- 📫 How to reach me **meghaonly1@gmail.com**
 
 - 📄 Know about my experience https://drive.google.com/file/d/16WiC3F5cN_ZwZFzJGVDMfINWthqerm3P/view?usp=sharing
 
-- ⚡ Fun fact **I am naughty**
+- ⚡ Fun fact **I am funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
