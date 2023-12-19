@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **meghaonly1@gmail.com**
 
-- 📄 Know about my experience https://drive.google.com/file/d/16WiC3F5cN_ZwZFzJGVDMfINWthqerm3P/view?usp=sharing
+- 📄 Know about my experience https://drive.google.com/file/d/1qQoF6ZFQItSS6D3dc7hnuETtfWS9kW1h/view?usp=sharing
 
 - ⚡ Fun fact **I am funny**
 
